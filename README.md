@@ -1,1 +1,1 @@
-# Intership-Code-Sep2020
+# Internship-Code-Sep2020
